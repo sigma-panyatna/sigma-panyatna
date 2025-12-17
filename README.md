@@ -1,5 +1,5 @@
 # panyatna >_<
-### <p align="center"> ![image](https://tenor.com/en-GB/view/gundham-gundhamtanaka-gundham-tanaka-danganronpa-dr2-gif-7425521049779918114)
+### <p align="center"> ![image](https://tenor.com/en-GB/view/gundham-gundhamtanaka-gundham-tanaka-danganronpa-dr2-gif)
 ____ 
 
 ### <p align="center"> — Hi! I'm not exactly looking for new acquaintances, but of course I'm not against it and chatting as well!
