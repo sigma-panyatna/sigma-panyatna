@@ -1,5 +1,5 @@
 # panyatna >_<
-### <p align="center"> ![image](https://media1.tenor.com/m/ZjLy7tOKdgEAAAAd/shuyuka-saimatsu.gif)
+### <p align="center"> ![image](https://tenor.com/i0G70lgKpA6.gif)
 ____ 
 
 ### <p align="center"> — Hi! I'm not exactly looking for new acquaintances, but of course I'm not against it and chatting as well!
