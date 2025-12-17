@@ -1,5 +1,5 @@
 # panyatna >_<
-### <p align="center"> ![image](https://tenor.com/en-GB/view/dante-dante-devil-may-cry-devil-may-cry-devil-may-cry-anime-anime-gif)
+### <p align="center"> ![image](https://tenor.com/en-GB/view/dante-dante-devil-may-cry-devil-may-cry-devil-may-cry-anime-anime-gif-7697138630469864359)
 ____ 
 
 ### <p align="center"> — Hi! I'm not exactly looking for new acquaintances, but of course I'm not against it and chatting as well!
